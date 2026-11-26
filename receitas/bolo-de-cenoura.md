@@ -17,5 +17,5 @@ Rendimento aproximado: 10 fatias.
 2. Bata no liquidificador as cenouras, os ovos e o óleo até obter uma mistura homogênea.
 3. Transfira para uma tigela e misture o açúcar e a farinha aos poucos.
 4. Incorpore o fermento delicadamente.
-5. Despeje a massa em uma forma untada e enfarinhada.
+5. Despeje a massa em uma forma de aproximadamente 20 × 30 cm, untada e enfarinhada.
 6. Asse por aproximadamente 35 a 40 minutos, até que um palito inserido no centro saia limpo.
